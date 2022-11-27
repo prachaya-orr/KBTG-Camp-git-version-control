@@ -4,4 +4,4 @@
 
 ### Date : 23/11/2022
 
-Promo code : SALE50
+Free shipping
